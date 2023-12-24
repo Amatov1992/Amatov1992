@@ -6,5 +6,5 @@
 - 🤔 I’m looking for help with coding
 - 💬 Ask me about Salesforce formulas and flows
 - 📫 How to reach me: Linkdin
-- 😄 Pronouns: Nurgazy
+- 😄 Pronouns: **Nurgazy**
 - ⚡ Fun fact: I am single
