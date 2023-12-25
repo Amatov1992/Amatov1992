@@ -7,4 +7,4 @@
 - 💬 Ask me about Salesforce formulas and flows
 - 📫 How to reach me: Linkdin
 - 😄 Pronouns: **Nurgazy**
-- ⚡ Fun fact: I am single
+- ⚡ Fun fact: I am single)
